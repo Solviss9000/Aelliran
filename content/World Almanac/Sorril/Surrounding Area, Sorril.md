@@ -1,0 +1,3 @@
+Technically in control of all the land South and West of the Red Hills til you get to [[Trond]], [[Sorril]] nearly ignores any of the vast land East of the Imperial Road. A small town has popped up on the Southern side of the river, straddling the road, called [[Hopespring]].
+
+Though few people live there, due to its proximity to the Imperial Road, [[Hopespring]] is finding a foothold as a prosperous- if young, settlement. Drawing much ore from the Red Hills and being a bit too far South for the raiding hordes to reach, [[Hopespring]] is a welcome break from the bustle of [[Sorril]] and [[Trond]].

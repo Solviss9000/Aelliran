@@ -1,0 +1,1 @@
+![[karl_s_gate.png]]

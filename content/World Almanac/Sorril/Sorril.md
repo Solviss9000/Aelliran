@@ -1,0 +1,5 @@
+As the oldest city on the North-West peninsula, Sorril is the most connected to the Empire. As such, it is the most cosmopolitan of the Northern cities. Having constant contact with the Imperial Territories through the complex and well-kept South Road, Sorril boasts many important and influential families.
+
+Sorril is the place to find all the newest and most interesting rumors regarding the Imperial Court and its intrigues. Also, the Empire's unofficial assassin guild, The Black Hand, operates within the city and some whisper this is the secret seat of their power.
+
+Sorrilans consider themselves the Northernmost Imperial citizens, treating the peoples of [[Horncross]] as bumpkins and the citizens of [[Karl's Gate]] as little more than savages (despite [[Karl's Gate]] having a larger income). 

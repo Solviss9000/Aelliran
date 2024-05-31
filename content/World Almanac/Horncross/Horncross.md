@@ -1,0 +1,5 @@
+A port city on the Western coast of Aelliran, the city was named after a famous battle fought just outside it's walls. When the Eastern Hordes pushed all the way to the coast, it was the ship-mounted ballista and catapults that finally drove them from the walls of the castle. The fire from the sea could not easily be countered by the savage's horse archers and so was the deciding factor in their defeat.
+
+There is a well-known Kenku information broker who lives somewhere on the dockside named, [[Munnin]], who has knowledge of many and varied subjects.
+
+Crossans are a practical bunch, mostly descended from the survivors of the many battles against the Eastern Hordes. They know that every day is a gift and that even the pale shadow of the Empire is enough to keep them safe. In the many years since the last raids, people have grown a bit complacent, feeling secure in their Imperial status and the knowledge of the success of the warships in deterring the Hordes. Most Crossans don't think twice about the other peoples of the Western peninsula, being much too busy scratching out a living in the hustle-bustle port city.

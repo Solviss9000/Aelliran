@@ -1,0 +1,1 @@
+Burly Ship captain known to frequent the *Horny Toad*, a tavern in the Aledocks and a customer of the Kenku information broker, [[Munnin]].

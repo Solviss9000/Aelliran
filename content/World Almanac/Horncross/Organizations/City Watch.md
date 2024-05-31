@@ -1,0 +1,1 @@
+Men and women paid by the city with taxes from trade and property to keep the peace within the city's walls. Salaries are average for the majority of Watchmen, but as they are highly respected and feared, its still an attractive occupation.

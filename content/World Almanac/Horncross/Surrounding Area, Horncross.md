@@ -1,0 +1,3 @@
+The land between Horncross and [[Karl's Gate]] is mostly tamed. Coppiced woods where there isn't cultivated farmland. No real disputes between the cities exist to-date, however land North and West of the river can become a commodity.
+
+The Western coastal waters are likewise very tame. No large storms or pirate bands to hassle travelers. Between [[Karl's Gate]]'s formidable Merchant Marine Fleet and [[Sorril]]'s Imperial Armada, the Western Sea has been shrouded in peace for more than a decade.

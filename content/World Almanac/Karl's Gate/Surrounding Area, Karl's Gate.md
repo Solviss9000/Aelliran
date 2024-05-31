@@ -1,0 +1,3 @@
+Sharing a land border with [[Horncross]] to the South-West, the lands around [[Karl's Gate]] are, for the most part, civilized. The Eastern reaches to the river are only sparsely settled, with some small ranches and tree farms.
+
+The Northern coast is widely considered some of the safest waters in the world. The Northern Kingdoms working hard to secure the space as a foothold to Imperial trade, many ships patrol the waters to ensure the safety of their merchant vessels and as yet the Eastern Hordes have shown no interest in seafaring.

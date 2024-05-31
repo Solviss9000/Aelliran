@@ -1,0 +1,1 @@
+Proprietress of *The Horny Toad*, a tavern in the Aledocks (deceased)

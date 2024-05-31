@@ -1,0 +1,1 @@
+Enforcer for the [[Rumboys]] (deceased), killed outside the now derelict tavern, *The Horny Toad* by [[Crowley]] after [[Wip the Quick]] sent him there to collect [[Munnin]] to pressure the Kenku into allying with the [[Rumboys]].

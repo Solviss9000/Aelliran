@@ -1,0 +1,1 @@
+Imperial agents employed by the Empire to augment the [[City Watch]] and represent Imperial rule in remote communities. These agents operate far above the [[City Watch]] in terms of jurisdiction and power. The "Imps"- as they're known are not to be trifled with.
