@@ -1,0 +1,1 @@
+More "traditional" privateers, the Jollies take pride in their craft- tricking and stealing from ships at sea, engaging in violence only when absolutely necessary.

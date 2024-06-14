@@ -1,3 +1,5 @@
 An ex-server at *The Horny Toad*, Crowley was working at the tavern in the hopes of meeting and speaking with [[Munnin]], as he has some questions about a mysterious cavern.
 
 Crowley was embroiled in the altercation at *The Horny Toad* which culminated in the death of [[Nan]] and was directly responsible for the death of [[Pit]] (who he drowned in the river after a rough interrogation).
+
+Practically born and raised on the ship *The Endless Horizon*, Crowley grew up learning the various roles that are needed to keep a ship running smoothly and what it means to be a pirate. This crew of misfits is part of [[The Jollies]] faction of [[The Collective]]. They generally preferred to avoid violence and bloodshed where possible but could put up a fight if needed and Crowley became much the same. Armed with a silver tongue as well as two cutlasses just like his captain, [[Adris Seaweaver]], a man who has seldom left the ocean for any amount of time.

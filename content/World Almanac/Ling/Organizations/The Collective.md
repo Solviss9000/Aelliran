@@ -1,0 +1,1 @@
+A confederation of privateer groups who operate from the Western Isle. The three factions of The Collective are [[The Jollies]], [[The Jacks]] and [[The Land-Siders]].

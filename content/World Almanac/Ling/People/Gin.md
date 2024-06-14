@@ -1,0 +1,1 @@
+First mate of [[Adris Seaweaver]] onboard the *Endless Horizon*, Gin is a [[Tieflings]] who grew up without a family and chose her name after her preference for the alcohol.

@@ -1,0 +1,1 @@
+Captain of the ship, *The Endless Horizon*, Adris is a Sea Elf buccaneer from [[The Jollies]] faction of [[The Collective]], based in [[Ling]]. His signature two-cutlass fighting style and aversion to making landfall makes him a fantastic captain, but unpopular among the more bureaucratic forces of [[Ling]].

@@ -1,0 +1,1 @@
+A vast, continent-spanning empire originating on the Southern Continent of Aelliran. Founded nearly 13 centuries ago by the Klons, a seafaring people who settled in the Southern Continent and spread their technology and influence North.

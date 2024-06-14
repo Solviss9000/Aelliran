@@ -1,0 +1,1 @@
+The land bound citizenry of [[Ling]], they comprise the agricultural arm of [[The Collective]], making sure that there is food enough to go around. 

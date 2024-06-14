@@ -1,0 +1,1 @@
+A violent gang of seafaring brutes, the Jacks don't consider it a successful heist unless all the enemy ships that can't be salvaged are burnt to the waterline and all the enemy crew are dead or dying. The most feared of [[The Collective]]'s triad, when sailors see the black skull flag high on a mast, they know to flee quickly or prepare to fight to the death.
